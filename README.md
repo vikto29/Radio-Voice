@@ -15,7 +15,7 @@
 
 ## التحميل:
 
-[تحميل الراديو](https://store.ho.sa/aYqPzn)
+[تحميل الراديو](https://github.com/vikto29/Radio-Voice/releases/download/fivem/Vikto.Voice.rar)
 
 ## الدسكورد:
 
