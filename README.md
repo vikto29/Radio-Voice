@@ -11,7 +11,7 @@
 
 ## فيديو:
 
-[![فيديو الراديو](https://img.youtube.com/vi/AWGmaDCji6o/0.jpg)](https://youtu.be/AWGmaDCji6o)
+[فيديو الراديو](https://img.youtube.com/vi/AWGmaDCji6o/0.jpg)](https://youtu.be/AWGmaDCji6o)
 
 ## التحميل:
 
