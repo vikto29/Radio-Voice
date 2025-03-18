@@ -17,6 +17,10 @@
 
 [تحميل الراديو](https://store.ho.sa/aYqPzn)
 
+## الدسكورد:
+
+[الدخول](https://discord.gg/9bgvpYHdJU)
+
 ---
 
 \@everyone
